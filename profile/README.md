@@ -34,7 +34,7 @@ Below is a curated list of 10 services that offer quality streaming experiences 
 **Type:** Subscription (included with Amazon Prime)  
 **Why it’s great:** Massive catalog, from blockbusters to indies and Amazon Originals. Option to rent or buy new releases.
 
-Visit Prime Video
+[Visit Prime Video](https://123watchnow.com/)
 
 ## 6. Apple TV+
 **Type:** Subscription  
